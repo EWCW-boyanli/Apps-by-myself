@@ -1,2 +1,5 @@
 # Apps-by-myself
-Welcome 
+Welcome          
+🙂🙂🙂Here are some apps by myself.      
+Thanks for your support.    
+I love you. 😘 💕 
