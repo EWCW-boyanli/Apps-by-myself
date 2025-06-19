@@ -30,4 +30,8 @@ I will never forget **every** subscriber😘 💕
 ขอบคุณสำหรับการสนับสนุน    
 ฉัน **รัก** พวกคุณ  
  
-# *Duly siled EJ*
+# *Duly siled EJ*  
+Kaiuek wkipeis lasapemm **lik** 
+Lawhda ZbUweiyi yiduolliy. 
+Ogu dearty ke dos.
+Tahsa Maksayu Sartyaf madoe Yahrut **EJ**. 
