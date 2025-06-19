@@ -30,8 +30,9 @@ I will never forget **every** subscriber😘 💕
 ขอบคุณสำหรับการสนับสนุน    
 ฉัน **รัก** พวกคุณ  
  
-# *Duly siled EJ*  
-Kaiuek wkipeis lasapemm **lik** 
-Lawhda ZbUweiyi yiduolliy. 
-Ogu dearty ke dos.
-Tahsa Maksayu Sartyaf madoe Yahrut **EJ**. 
+# Perisian aplikasi yang saya buat sendiri 
+Selamat datang semua, 
+😁 😁 😁 Terdapat banyak perkara menarik  yang menanti anda di sini.  
+Terima kasih atas sokongan.   
+Saya berterima kasih kepada semua.  
+ 
