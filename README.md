@@ -29,10 +29,16 @@ I will never forget **every** subscriber😘 💕
 😁😁😁 มีของสนุก**มากมาย** รอคุณอยู่ตรงนี้   
 ขอบคุณสำหรับการสนับสนุน    
 ฉัน **รัก** พวกคุณ  
- 
+  
 # Perisian aplikasi yang saya buat sendiri 
 Selamat datang semua, 
 😁 😁 😁 Terdapat banyak perkara menarik  yang menanti anda di sini.  
 Terima kasih atas sokongan.   
-Saya berterima kasih kepada semua.  
+**Saya berterima kasih kepada semua.**   
+ 
+# Software aplikasi yang saya buat sendiri    
+Selamat datang semua,   
+😁 😁 😁 Ada banyak hal menyenangkan yang.       menunggu Anda di sini.   
+Terima kasih atas dukungannya.   
+**Aku berterima kasih kalian.**   
  
